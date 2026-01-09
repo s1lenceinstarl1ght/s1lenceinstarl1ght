@@ -3,9 +3,9 @@
 
 ✦they/them (can be we/us)✧
 call us perceive or four :D
-four bfb kinnieꔛ
+four bfb kinnie༄
 
-![image](https://github.com/user-attachments/assets/2685d105-c8d0-4eff-b5b6-e9c9e5e6543b)
+<img width="400" height="39" alt="image" src="https://github.com/user-attachments/assets/604ca4ac-018b-4559-b1b6-06d37b3f9872" />
 
 do not cover us entirely pls!! c+h is okay :] ✧
 nonsharing Silent Salt Cookie yumeshipper , doubles dni⊹
