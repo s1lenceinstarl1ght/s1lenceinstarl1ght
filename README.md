@@ -8,7 +8,7 @@ call us Perceive, Lampert, or Four :D
 
 minor!! 18+ dni
 
-Four BFB and slight Regect kinnie༄
+Four BFB, Lampert, and slight Regect kinnie༄
 
 <img width="400" height="39" alt="image" src="https://github.com/user-attachments/assets/604ca4ac-018b-4559-b1b6-06d37b3f9872" />
 
