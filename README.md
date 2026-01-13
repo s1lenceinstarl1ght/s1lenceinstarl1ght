@@ -4,7 +4,7 @@
 
 
 ✦they/them (can be we/us)✧
-call us Perceive or Four :D
+call us Perceive, Lampert, or Four :D
 
 minor!! 18+ dni
 
