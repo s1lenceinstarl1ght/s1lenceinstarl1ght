@@ -16,6 +16,8 @@ Four BFB, Lampert, and slight Regect kinnie༄
 do not cover us entirely pls!! c+h is okay :] ✧
 nonsharing Silent Salt Cookie yumeshipper , doubles dni⊹
 
+Silentfaerie/lily and Skaterlight DNI!
+
 ![image](https://github.com/user-attachments/assets/9873c67a-5e12-4b17-81d4-db201c6b2d33)
 
 if upset is in our user dniuf pls彡
