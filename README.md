@@ -4,6 +4,9 @@
 
 
 ✦they/them (can be we/us)✧
+
+NOT a sys, just comfortable with we/us!!
+
 call us Perceive or Lampert :D
 
 minor!! 18+ dni
